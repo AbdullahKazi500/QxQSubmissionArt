@@ -2,7 +2,6 @@
 Submission for the Quantum Art Category 
 
 
-https://user-images.githubusercontent.com/75779966/224508119-8dbcebed-ed45-48f9-85ad-deb44d9d0a90.mp4
 
 
 
